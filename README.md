@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @AlexGHKoba. I’m currently learning Data Analytics in CareerFoundry. 
